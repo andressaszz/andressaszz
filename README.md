@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @andressaszz
+- https://gamma.app/docs/Como-ganhar-dinheiro-na-internet-et8y4b0qzpqeicy
